@@ -1,2 +1,2 @@
 # Explorer
-My attempt at making an explorer
+why are you even here lol. just use dex or smth
